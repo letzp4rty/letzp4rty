@@ -6,6 +6,8 @@ NONSHARING YUMES PLEASE STOP INT!!!!!!!!!!!! :(
 
 euuughhh i gotta do my githtibbbbbbbbbbbbbbbbbbbbbbbbbbb and remake my strawpages againnnnnnnnnnnnnnnnnnnnnnnnnn
 
+<img width="800" src="https://i.postimg.cc/YSrsjXkm/obraz-2025-12-10-131736218.png">
+
 .
 me core:
 ![Alt Text](https://i.pinimg.com/736x/0f/7d/ae/0f7daeb8da72c98f404b17dbca1bf92d.jpg)
